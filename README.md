@@ -1,1 +1,1 @@
-# Lattice---Team-Summit-Waves
+# Lattice by Team Summit Waves
